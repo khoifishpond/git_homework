@@ -5,5 +5,3 @@ Try to take Pom breaks after long periods of time; don't power through content.
 Utilize the Google tips for better, efficient results.
 
 My girlfriend, Kathy, has been the most supportive throughout this entire process so far.
-
-I'm actually really hungry now.
